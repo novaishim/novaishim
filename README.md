@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @novaishim
+- - 🤢 Pronouns are dogs shit
